@@ -19,7 +19,7 @@ Today, I experienced all but the lines. It was snowing so most people that retur
 
 Before leaving home I had also decided to get rid of some extra change that I've accumulated for about 2 years. I counted it at home, put it into separate bags and labelled each one with the dollar amount. I am no stranger to using small change. I know the cashier will have to count it so I thought sorting it out would be a way to make it go quickly. I didn't expect this to work but I wanted to try so I don't have to wait for my bank to open.
 
-[Picture of how I sorted coins.](http://i.imgur.com/wmMVE0B.jpg)
+[Picture of how I sorted coins.](http://i.imgur.com/wmMVE0B.jpg) (nickels are invisible I guess)
 
 Well, surprise, not only did it not work but I got less than zero sympathy from the customer service person. In fact she replied to my request with one angry phrase: "That's what the Coin Star is for!". The first time, I replied: "but they charge 10%!". She simply repeated herself over and over. I told her I would help her count it and they are all sorted but it had no effect. I laughed self defensively and told she didn't need to get upset at me and I understand it's frustrating.
 

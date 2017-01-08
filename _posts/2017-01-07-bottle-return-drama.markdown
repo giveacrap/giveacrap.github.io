@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Bottle Return Drama"
+title:  "Safeway Bottle Return"
 date:   2016-11-11 10:20:11 -0800
 categories: houseless
 ---
@@ -17,8 +17,14 @@ Even when the machine is up and it's your turn, the machine will still find ways
 
 Today, I experienced all but the lines. It was snowing so most people that return cans regularly were hopefully indoors. After returning 23 cans, I came back to the customer service desk to redeem my $1.10 can voucher. By the way, make sure you return that ticket soon. Some employees will refuse to redeem any tickets after the day of return. I found that confusing. The security seals printed on the ticket itself are not enough?
 
-Before leaving home I had also decided to get rid of some extra change that I've accumulated for about 2 years. I counted it at home, put it into separate bags and labelled each one with the dollar amount. I am no stranger to using small change. I know the cashier will have to count it so I thought sorting it out would be a way to make it go quickly.
+Before leaving home I had also decided to get rid of some extra change that I've accumulated for about 2 years. I counted it at home, put it into separate bags and labelled each one with the dollar amount. I am no stranger to using small change. I know the cashier will have to count it so I thought sorting it out would be a way to make it go quickly. I didn't expect this to work but I wanted to try so I don't have to wait for my bank to open.
 
+[Picture of how I sorted coins.](http://i.imgur.com/wmMVE0B.jpg)
 
+Well, surprise, not only did it not work but I got less than zero sympathy from the customer service person. In fact she replied to my request with one angry phrase: "That's what the Coin Star is for!". The first time, I replied: "but they charge 10%!". She simply repeated herself over and over. I told her I would help her count it and they are all sorted but it had no effect. I laughed self defensively and told she didn't need to get upset at me and I understand it's frustrating.
 
-Today, things went a little differently.
+I redeemed my $1.20 bottle ticket and asked for a single Powerball ticket. A Powerball ticket is $2 so I gave her all 7 of the quarters I had to make up the difference. She started counting 4 of them out. I said (and probably shouldn't have) "that's what the Coin Star is for."
+
+But let's get real. Taking cans back every week is an atomically small reminder that I live in a bubble of privilege. What does privilege look like? It could look like: warm feet, paychecks, cruises and free lunches. Privilege has other forms that are more psychological too. Being treated nicely by a non-overworked employee. Having people treat your questions with a proper response and not one word phrases. Feeling like you are wanted. Feeling like you can still enter the front of a store even if you aren't going to buy anything (because you have the money to MAYBE buy something). Having the ability to trade up for larger bills without being charged a ridiculous fee. Not having to always justify your own existence because somehow you have already proven yourself worthy.
+
+See what I mean? Bottle returns were not designed to be used exclusively by houseless individuals. It just so happens that they are. So why is Safeway only providing the minimum amount of effort to make the experience worth everyone's time? I mean, it seems like Safeway assumes that all people taking bottles back have nothing better to do. Well, I take my bottles back and I have plenty to do. So does the person behind me. It doesn't matter if they are houseless, struggling with addiction, experiences mental illness or part of a marginalized group. Everyone's time is valuable and everyone deserves some acknowledgement of that. Hopefully it won't be the same way 20 years from today.
